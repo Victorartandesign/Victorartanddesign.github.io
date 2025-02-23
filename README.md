@@ -20,14 +20,13 @@
 
 ### History
 - Beginnings
-  
+  'nigggerss'
 - Now
 
 ### Future
 - What We Have Planned
   
 ## Links
-- Instagram
-
-- Youtube
-- Facebook
+- [instagram](https://www.instagram.com/victorartanddesignstudio/)
+- [instagram](https://www.instagram.com/victor.fcl.tt/)
+- 
