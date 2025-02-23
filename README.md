@@ -26,7 +26,7 @@
 ### Future
 - What We Have Planned
   
-##Links
+## Links
 - Instagram
 
 - Youtube
